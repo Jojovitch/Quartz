@@ -6,7 +6,7 @@ kanban-plugin: basic
 
 ## Test1
 
-- [ ] Test card
+- [ ] [[Wip1]]
 - [ ] Test card
 - [ ] Test card
 - [ ] Test card
@@ -14,7 +14,7 @@ kanban-plugin: basic
 
 ## Test2
 
-- [ ] Test card
+- [ ] [[Wip2]]
 - [ ] Test card
 
 
@@ -27,7 +27,7 @@ kanban-plugin: basic
 
 ## Test4
 
-- [ ] Test card
+- [ ] [[Finalized WIP]]
 
 
 
