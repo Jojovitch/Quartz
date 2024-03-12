@@ -1,0 +1,9 @@
+## Overview:
+Type 1 [[futanari]] have a phallus which is more akin to an enlarged clitoris, albeit with an added ability to ejaculate and otherwise normal female genitalia. Type 1 phalli lack the elastic membrane usually present, due to this they do not have an erect and flaccid state. Though they do become engorged from increased blood flow during arousal, the size change is limited to 25%-40% and are not soft as one might expect when not aroused. Additionally, they posses both the traditional female urinary tract, and seminal ducts for ejaculate to be expelled from
+
+## Type specific concerns:
+Until puberty, the genitals are entirely identical to unaffected female genitals. Though in theory ovarian ultrasound can show the primordial seminal ducts, the structures are so small most trained professionals can't differentiate the image from noise. 
+
+Upon the onset of puberty, the clitoris will begin to grow, over a 6 month period ~70% of growth will occur, up to a standard size of 3-5 inches (8-13cm). During this the nerve density will anywhere from double to triple leading to hyper sensitivity. For this reason it is recommended for type 1 to wear a protective elastic sheath on a regular basis. An niche industry has arisen to provide stylistic customized sheaths to appearance minded individuals.
+
+Shortly after growth of the phallus begins, so will the development of the seminal ducts and production of seminal fluid. Due to having a dedicated seminal tract, it is possible for them to suffer from seminal blockage. To avoid this, ejaculation should be achieved at least every 2-3 days. If more than a week has passed and the patient still cannot achieve orgasm on their own, they should seek medical assistance. If manual stimulation fails electrostimulation will be applied to directly stimulate the muscles. If this fails invasive medical intervention may be required as blockages can cause serious issues.

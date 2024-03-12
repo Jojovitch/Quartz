@@ -1,0 +1,9 @@
+## Overview:
+Type 2 [[futanari]] have a fully unified genitalia. The phallus, anchored to the pelvic bone, rides up along the upper inside edge of the vaginal cavity and out the front. The phallus replaces the usual urethra and clitoris, unifying them into a single structure. When unaroused the phallus becomes nearly invisible as it retracts fully inside the body, and is covered by a similar structure to the clitoral hood.
+
+## Type specific concerns:
+For the first few years of development, the phallus appears visually identical a clitoris. Because of this, and the private nature of the area in question. Unless close inspection is made, it is easy for the condition to go undiagnosed until puberty. 
+
+When first arousal occurs, it may be uncomfortable or even painful for the patient. Due to the layout of genital, the hymen is deformed due to erection, and upon full arousal may tear. This is expected and a natural occurrence. But due to the frequently undiagnosed nature, may cause alarm and panic in the child and parent as bleeding is common. Additionally due to the increased nerve concentration in the phallus to witch the hymen is partly attached, pain can be significantly more notable when compared to the average torn hymen.
+
+Once puberty begins in earnest, the phallus will grow several times in size and begin to appear and function the same as any other. Both urination and ejaculation will occur through the phallus, as indeed urination already had up to now. Upon maturation there is no specific needs for a type 2, other than close attention to cleaning in the area compared to pre-emergence as the body's ability to maintain sanitation is compromised by frequent erections and loss of the hymen membrane. 
