@@ -10,7 +10,7 @@
 #### Anatomical description:
 - Height:136cm
 - Cup size: B Cup
-- Penis size: 
+- Penis size: 94mm
 - Eye color: 
 - Hair color: 
 ## Outfit:

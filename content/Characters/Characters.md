@@ -4,8 +4,11 @@ kanban-plugin: basic
 
 ---
 
-## Rough ideas
+## Refined
 
+- [ ] [[Miyako Jo]]
+- [ ] [[Rina]]
+- [ ] [[Yuuna]]
 
 
 ## In progress
@@ -14,13 +17,11 @@ kanban-plugin: basic
 - [ ] [[Succubus (placeholder)]]
 - [ ] [[Teachers Aid (placeholder)]]
 - [ ] [[Cyborg (Placeholder)]]
+- [ ] [[Chihiro]]
 
 
-## Refined
+## Rough ideas
 
-- [ ] [[Miyako Jo]]
-- [ ] [[Rina]]
-- [ ] [[Yuuna]]
 
 
 
